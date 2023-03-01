@@ -1,1 +1,1 @@
-# emmafreisberg.github.io
+# emmafreisberg.com
